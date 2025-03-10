@@ -8,7 +8,7 @@ As the forex and CFD trading industry continues to evolve, traders are always lo
 In this review, we analyze Suxxess FX’s latest updates, trading conditions, security enhancements, and real user feedback to determine whether it remains a reliable broker in 2025.
 
 
-![image]()
+![image](https://github.com/Trader-review/SuxxessFX-review-2025/blob/9121f147e9b01faf500089ea678eda67cc0e210c/Suxxess%20fx%20home.PNG)
 
 Key Updates and Changes in 2025
 --------------------
